@@ -1,10 +1,3 @@
-										       **Kingdom of Cambodia**  
-                     **Nation Religion King**  
-**Ministry of Education,Youth and Sport**						           
-**Name of Unit…………………………….**
-
-## 
-
 ## **Application to the CPDMO for accreditation of CPD products/offerings for teachers**
 
 **Note to applicants:** Once an application for accreditation has been successful and accreditation has been awarded, providers must ensure that they deliver the CPD offering as per the application submitted and approved. If quality assurance mechanisms such as spots checks subsequently reveal that any aspect of the CPD offering being delivered, for example assessment of learning, does not conform to the description of the CPD offering as accredited, accreditation may be revoked.    
@@ -81,9 +74,6 @@
 **and the password**  
 **Teaching1**
 
-	**Date:    						Date:**      
-	**Signature of the Director 				Signature of the Director**  
-	**of the PTTC Kampong Cham				of Open Institute**  
 										         
 
 
